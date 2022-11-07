@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **poojaryakshay2200@gmail.com**
 
-- ⚡ Fun fact **I think i have a good taste in Anime.**
+- ⚡ Fun fact **I think I have a good taste in Anime.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
