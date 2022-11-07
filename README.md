@@ -5,7 +5,7 @@
 
 - 🔭 I’m currently working on **Full Stack Development**
 
-- 🌱 I’m currently learning **Data Structures &Algorithms**
+- 🌱 I’m currently learning **Data Structures & Algorithms**
 
 - 📫 How to reach me **poojaryakshay2200@gmail.com**
 
